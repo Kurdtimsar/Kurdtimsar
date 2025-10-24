@@ -42,7 +42,7 @@
 
 ### 📫 How to Reach Me
 - 💬 Telegram / Discord: (@Kurdtimsar)
-- ✉️ Email: [Kurdtimsar@example.com](mailto:kurdtimsar@example.com)
+- ✉️ Email: [Kurdtimsar@gmail.com](mailto:kurdtimsar@gmail.com)
 - 🌐 Portfolio (coming soon!)
 
 ---
